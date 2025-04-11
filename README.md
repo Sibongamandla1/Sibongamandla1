@@ -23,6 +23,7 @@ Welcome to my GitHub! I’m currently diving deep into the world of **Cloud Engi
 ### 📫 How to reach me:
 - Email: sibongamhlongo081@gmail.com
 - Twitter: @sibongamandla_
+- Credly: https://www.credly.com/users/sibongamandla-mhlongo
 
 ### 😄 Pronouns:
 He/Him
